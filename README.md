@@ -2,7 +2,7 @@
 
 In 2025, gaming continues to thrive as one of the most popular entertainment activities, and Xbox remains a top platform for millions of gamers worldwide. Whether you enjoy the latest titles, indulging in online multiplayer, or collecting exclusive content, one thing is certain—gift cards are often the key to unlocking new features, games, and content. But what if you could get a $100 Xbox gift card for free? Yes, you read that right!
 
-### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/amazon/go/)
+### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/xbox/go/)
 
 In this guide, we’ll explore the best tools and methods to get free $100 Xbox gift card codes in minutes. And before we dive into the details, we have a special offer for you. By the end of this article, you’ll be given access to a limited-time, 100% free opportunity to claim an Xbox gift card. So, make sure to read through all the steps, methods, and tools to get the most out of this offer. Let’s get started!
 
